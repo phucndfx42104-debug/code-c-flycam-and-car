@@ -1,1 +1,1 @@
-Hay dungf wifi vaf bluetooth
+Dùng wifi và bluetooth
