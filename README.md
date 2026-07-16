@@ -1,1 +1,1 @@
-Dùng wifi và bluetooth
+Dùng bluetoot
