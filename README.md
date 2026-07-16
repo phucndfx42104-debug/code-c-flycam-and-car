@@ -1,1 +1,1 @@
-Dùng bluetoot
+Dùng bluetooth
