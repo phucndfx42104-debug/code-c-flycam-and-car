@@ -1,1 +1,1 @@
-ofen use bluetooth and wifi
+Hay dungf wifi vaf bluetooth
